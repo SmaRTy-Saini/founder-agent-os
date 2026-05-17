@@ -145,7 +145,7 @@ The Pro version includes the complete Founder Agent OS:
 
 Get the Pro version here:
 
-**YOUR_GUMROAD_LINK_HERE**
+**https://smartysaini.gumroad.com/l/wtbugd**
 
 ## Who this is for
 
